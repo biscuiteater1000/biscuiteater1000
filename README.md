@@ -12,14 +12,4 @@ mostly everything made by @GalacticGlamour !!!
 
 HUZZZZAHHHHHHHHHHHHHHHHH MOOT ME UP
  
-<!DOCTYPE html>
-<html>
-<head>
-  <title>My Website</title>
-</head>
-<body>
-
-  <img src="1000002133.gif" alt="GIF" width="500">
-
-</body>
-</html>
+<img src="https://raw.githubusercontent.com/biscuiteater1000/biscuiteater1000/main/gif.gif" width="500">gif.gif
