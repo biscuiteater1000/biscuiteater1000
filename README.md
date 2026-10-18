@@ -1,5 +1,6 @@
 <div align="center">
 
+<img width="400" height="64" alt="tumblr_7832a42be6189b0221faa993569f5c33_af0f1cfa_400" src="https://github.com/user-attachments/assets/fb869e8f-4b7d-4fa4-b964-864ef6b122b0" />
 
 
 hi guys i am a infectniuojiuhis smile god hhahahhahhaha!!!!!!!!
@@ -24,11 +25,11 @@ HUZZZZAHHHHHHHHHHHHHHHHH MOOT ME UP
 
 
 ⠀
-⠀⠀<img width="99" height="56" alt="tumblr_38b2808c32b11be85c3a7535d7223069_87916d4c_100" src="https://github.com/user-attachments/assets/d9b4f6a9-dff3-42e6-82d4-91816857c556" />
+<img width="99" height="56" alt="tumblr_38b2808c32b11be85c3a7535d7223069_87916d4c_100" src="https://github.com/user-attachments/assets/d9b4f6a9-dff3-42e6-82d4-91816857c556" />
 
-⠀⠀ ⠀ ⠀  <img width="250" height="34" alt="tumblr_8f204fdc86e6947af24fc27c83cab211_74c08651_250" src="https://github.com/user-attachments/assets/e5d19a8b-c271-41b3-9e8f-0ce678f4e5e0" />
+⠀⠀ <img width="250" height="34" alt="tumblr_8f204fdc86e6947af24fc27c83cab211_74c08651_250" src="https://github.com/user-attachments/assets/e5d19a8b-c271-41b3-9e8f-0ce678f4e5e0" />
 
-⠀⠀<img width="99" height="55" alt="tumblr_3fbdeb128e3a33c9b3236c815ef13930_f1c1fdea_100" src="https://github.com/user-attachments/assets/bc732773-f1d3-44aa-a2cd-f61a32a83f11" />
+⠀ <img width="99" height="55" alt="tumblr_3fbdeb128e3a33c9b3236c815ef13930_f1c1fdea_100" src="https://github.com/user-attachments/assets/bc732773-f1d3-44aa-a2cd-f61a32a83f11" />
 
 </details>
 
